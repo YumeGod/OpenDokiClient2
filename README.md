@@ -1,2 +1,2 @@
 # DokiClient2
-f**k you czf
+Hacked By Yume1337 :)
